@@ -1,0 +1,2 @@
+# Proiect_CE_master_Milea_Larisa_gr1126
+Proiect seminar
